@@ -11,7 +11,7 @@ Burn tokens, rise through the ranks, and earn exciting rewards!
 Invite friends, have a blast together, and grow LUKO community.
 
 ## 🎮 Seasonal Events & Mini-Games  
-Dive into unique quests and mini-games—something you've never experienced before!
+Dive into unique quests and mini-games—something you've never experienced before! **PS: The treasure hunt will begin soon, solve the codes faster than anyone else and get all the contents of the safe**
 
 ## 🗳️ Have Your Say  
 Vote on token distribution and the latest innovations, shaping the future of LUKO.
