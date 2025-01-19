@@ -1,6 +1,6 @@
 # LUKO: Bringing Fun and Unforgettable Experiences to TON! 🎉
 
-Say goodbye to boring slippers—**LUKO** is here to spice things up with thrilling activities and endless entertainment! Here's what we've got in store for you:
+Say goodbye to boring tap games—**LUKO** is here to spice things up with thrilling activities and endless entertainment! Here's what we've got in store for you:
 
 ## 🏆 Climb the Leaderboard  
 Burn tokens, rise through the ranks, and earn exciting rewards!
