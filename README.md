@@ -2,8 +2,8 @@
 
 <img src="https://i.ibb.co/hsJqWM7/IMAGE-2025-01-17-20-06-48.jpg" alt="LUKO Logo" width="200">
 
-[WebSite](https://lukocoin.com)
-[Telegram](https://t.me/LukosChannel)
+[WebSite](https://lukocoin.com) | 
+[Telegram](https://t.me/LukosChannel) | 
 [X](https://x.com/lukocoin?s=21)
 
 Say goodbye to boring tap games—**LUKO** is here to spice things up with thrilling activities and endless entertainment! Here's what we've got in store for you:
