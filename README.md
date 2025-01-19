@@ -1,6 +1,6 @@
 # LUKO: Bringing Fun and Unforgettable Experiences to TON! 🎉
 
-![LUKO Logo](https://example.com/luko-logo.png "LUKO Logo")
+![LUKO Logo](https://i.ibb.co/hsJqWM7/IMAGE-2025-01-17-20-06-48.jpg)
 
 Say goodbye to boring tap games—**LUKO** is here to spice things up with thrilling activities and endless entertainment! Here's what we've got in store for you:
 
